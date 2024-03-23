@@ -17,6 +17,12 @@ A reminder of the magic within our hearts.
 - [LinkedIn 🔗](https://www.linkedin.com/in/dharmraj-sodha-059512249/) 
 - [Twitter 🐦](https://twitter.com/S_hadowHeart) 
 - [Dev.to 🌱](https://dev.to/s_hadowheart) 
-- [GitHub  🐱](https://github.com/S-hadowHeart)
+
+
+---
+
+**S-hadowHeart**  
+[GitHub](https://github.com/S-hadowHeart)
+
 
 
