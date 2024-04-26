@@ -13,7 +13,8 @@ Each twinkle, a whisper in the dark,
 A reminder of the magic within our hearts.
 
 ### Find me elsewhere:
-- [Me 😁](https://s-hadowheart.carrd.co/) 
+- [Me 😁](https://s-hadowheart.carrd.co/)
+- [LinkTree 🌳](https://linktr.ee/s_hadowheart)
 - [LinkedIn 🔗](https://www.linkedin.com/in/dharmraj-sodha-059512249/) 
 - [Twitter 🐦](https://twitter.com/S_hadowHeart) 
 - [Dev.to 🌱](https://dev.to/s_hadowheart) 
