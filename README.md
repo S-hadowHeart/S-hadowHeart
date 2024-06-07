@@ -1,5 +1,5 @@
 # Hey there, stranger in the digital expanse! 
-I'm just starting to unfurl my wings in this vast online universe, armed with a heap of skills and a heart that beats to the rhythm of creativity. As an ISFJ, I'm all about finding beauty in the little things and pouring my soul into my passions.
+I'm just starting to unfurl my wings in this vast online universe, armed with a heap of skills and a heart that beats to the rhythm of creativity. As an INFJ, I'm all about finding beauty in the little things and pouring my soul into my passions.
 
 Sure, my social media game is still in the making, but hey, Rome wasn't built in a day! Soon enough, you'll catch glimpses of my projects and musings popping up in your feed. Join me on this rollercoaster of experimentation and discovery!
 
