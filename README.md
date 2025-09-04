@@ -23,8 +23,6 @@ A reminder of the magic within our hearts.
 
 ---
 
-
-
 ###
 
 <div align="center">
