@@ -21,18 +21,6 @@ A reminder of the magic within our hearts.
 - [Instagram 🎸](https://www.instagram.com/s_hadowheart)
 
 
----
-
-###
-
- <div align="center">
-        <img src="https://streak-stats.demolab.com/?user=s-hadowheart&theme=dark" alt="streak graph"  />
-      </div>
-
----
-
-###
-
 **S-hadowHeart**  
 [GitHub](https://github.com/S-hadowHeart)
 
