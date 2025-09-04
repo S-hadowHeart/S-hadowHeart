@@ -26,7 +26,7 @@ A reminder of the magic within our hearts.
 ###
 
 <div align="center">
-  <img src="https://streak-stats.demolab.com?user=S-hadowHeart&locale=en&mode=daily&theme=dark&hide_border=false&border_radius=5" alt="streak graph"  />
+  <img src="https://streak-stats.demolab.com/?user=s-hadowheart&theme=dark&locale=en&mode=daily&theme=dark&hide_border=false&border_radius=5" alt="streak graph"  />
 </div>
 
 ---
